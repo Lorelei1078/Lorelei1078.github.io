@@ -1,4 +1,4 @@
-## Welcome to Lorelei1087's page!
+## Welcome to Lorelei1078's page!
 
 You can use the [editor on GitHub](https://github.com/Lorelei1078/Lorelei1078.github.io/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
 
